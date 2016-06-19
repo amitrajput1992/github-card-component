@@ -2,4 +2,4 @@
 
 
 check out the demo here
-http://www.infinityzinfinity.co.nf/
+http://www.infinityxinfinity.co.nf/
